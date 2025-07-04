@@ -22,4 +22,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/misc/input.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/misc/close.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  06/26/2025 url is back up
+
+
+Update: Missing references
