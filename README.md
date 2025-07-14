@@ -26,4 +26,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update:  Monday 07 July 2025 Updated dependency URLs to latest versions
+
+
+Update:  07/14/2025 04-09 Resource URLs
