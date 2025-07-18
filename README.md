@@ -28,4 +28,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update:  07/14/2025 04-09 Resource URLs
+
+
+Update: The link is now reachable, thanks for the fix!
