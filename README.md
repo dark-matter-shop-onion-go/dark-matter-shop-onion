@@ -30,4 +30,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update: The link is now reachable, thanks for the fix!
+
+
+Update: link is functioning
