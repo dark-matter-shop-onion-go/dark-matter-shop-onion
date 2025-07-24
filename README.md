@@ -32,4 +32,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update: link is functioning
+
+
+Update:  24 July
