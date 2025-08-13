@@ -36,4 +36,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update:  04 August Fixed unreachable url
+
+
+Update:  13.08.2025 url updated and working
