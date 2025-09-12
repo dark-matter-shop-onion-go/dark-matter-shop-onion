@@ -42,4 +42,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update:  Saturday 23 August 2025
+
+
+Update:  12 September Link is now clickable and accessible
