@@ -44,4 +44,6 @@ Always remember that anonymity is of utmost importance when navigating these spa
 
 
 
-Update:  12 September Link is now clickable and accessible
+
+
+Update:  18 September The link is live and working smoothly.
