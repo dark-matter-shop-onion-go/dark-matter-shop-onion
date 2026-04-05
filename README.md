@@ -4,11 +4,11 @@ Seeking information about the Dark Matter Shop Onion? This darknet marketplace i
 
 ## Dark Matter: Market URL:
 
-http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion
+http://%64%61%72%6B%6D%61%74&#51;&#111;&#104;%63&#51;&#106;%79%6B&#111;%69u&#54;&#112;&#111;%63&#102;&#101;&#53;&#54;%37&#50;%64&#118;%76&#52;%62u%36&#106;%77&#101;%36%6Eu&#99;&#122;%34&#120;&#120;&#50;&#51;%36&#101;%63%66%6F%61%71%64%2E&#111;%6E&#105;%6F&#110;
 
-[<img src="/misc/piece.webp" width="200">](http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion)
+[<img src="/skins/alpha.webp" width="200">](http://%64%61%72%6B%6D%61%74&#51;&#111;&#104;%63&#51;&#106;%79%6B&#111;%69u&#54;&#112;&#111;%63&#102;&#101;&#53;&#54;%37&#50;%64&#118;%76&#52;%62u%36&#106;%77&#101;%36%6Eu&#99;&#122;%34&#120;&#120;&#50;&#51;%36&#101;%63%66%6F%61%71%64%2E&#111;%6E&#105;%6F&#110;)
 
-<a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/misc/light.webp" alt="image" style="max-width: 100%;"><a>
+<a href="http://%64%61%72%6B%6D%61%74&#51;&#111;&#104;%63&#51;&#106;%79%6B&#111;%69u&#54;&#112;&#111;%63&#102;&#101;&#53;&#54;%37&#50;%64&#118;%76&#52;%62u%36&#106;%77&#101;%36%6Eu&#99;&#122;%34&#120;&#120;&#50;&#51;%36&#101;%63%66%6F%61%71%64%2E&#111;%6E&#105;%6F&#110;"><img src="/skins/crisp.webp" alt="image" style="max-width: 100%;"><a>
 
 This content is provided solely for educational and informational purposes, designed to give you insight into the hidden world of the dark web. We do not receive commissions or kickbacks from any market affiliate links, and we are not affiliated with any legal entities. We do not condone or support illegal activities.
 
@@ -20,32 +20,4 @@ It’s also crucial to be aware of the Dark Matter darknet mirrors. These altern
 
 Always remember that anonymity is of utmost importance when navigating these spaces. Always utilize a VPN and anonymous payment methods to protect your privacy and data.
 
-<a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/misc/input.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/misc/close.webp" alt="image" style="max-width: 100%;"><a>
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Update:  01 October 2025
+<a href="http://%64%61%72%6B%6D%61%74&#51;&#111;&#104;%63&#51;&#106;%79%6B&#111;%69u&#54;&#112;&#111;%63&#102;&#101;&#53;&#54;%37&#50;%64&#118;%76&#52;%62u%36&#106;%77&#101;%36%6Eu&#99;&#122;%34&#120;&#120;&#50;&#51;%36&#101;%63%66%6F%61%71%64%2E&#111;%6E&#105;%6F&#110;"><img src="/skins/capture.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://%64%61%72%6B%6D%61%74&#51;&#111;&#104;%63&#51;&#106;%79%6B&#111;%69u&#54;&#112;&#111;%63&#102;&#101;&#53;&#54;%37&#50;%64&#118;%76&#52;%62u%36&#106;%77&#101;%36%6Eu&#99;&#122;%34&#120;&#120;&#50;&#51;%36&#101;%63%66%6F%61%71%64%2E&#111;%6E&#105;%6F&#110;"><img src="/skins/element.webp" alt="image" style="max-width: 100%;"><a>
